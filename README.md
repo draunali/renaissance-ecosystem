@@ -39,6 +39,14 @@ As Atlas™ rises, it continues to mint tokens that local governments and instit
 
 ---
 
+### 💠 Atlas Needs Your Help!
+
+Atlas, the Phoenix Forge, and the Renaissance Ecosystem are community-driven.  
+Tip the forge, help Atlas carry the earth forward.  
+**[Support the project!](https://buy.stripe.com/dRm00jcS50p36wK9sK14406)**
+
+---
+
 ## 👤 Learn More About the Founder
 
 This project was founded by **Dr. Aun Ali** — physician, writer, artist, and founder of the Renaissance-Ecosystem™.  
